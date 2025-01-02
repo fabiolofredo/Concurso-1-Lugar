@@ -1,5 +1,5 @@
 # Concurso-1-Lugar
 
-1° Lugar entre 3193 candidatos de todo o estado de SP, para o processo seletivo de "DOCENTES PARA A EDUCAÇÃO PROFISSIONAL TÉCNICA DE NÍVEL MÉDIO" para 2025.
+1º lugar entre 3.193 candidatos no estado de São Paulo no processo seletivo para "Docentes para a Educação Profissional Técnica de Nível Médio" – edital para 2025.
 
-Verificar na Página 384 de 519.
+Referência: Página 384 de 519.
